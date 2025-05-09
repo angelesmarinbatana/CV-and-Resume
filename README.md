@@ -1,4 +1,4 @@
-#  Resume & Curriculum Vitae
+#  Resume & Curriculum Vitae 🎓
 - Up to date as of March 2025 😊
 ---
 
