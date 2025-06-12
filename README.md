@@ -9,7 +9,7 @@
 
 # Add Me! ☀️
 
-[***LinkedIN***](https://www.linkedin.com/in/angeles-marin-batana/) 
+[***LinkedIn***](https://www.linkedin.com/in/angeles-marin-batana/) 
 
 [***Twitter***](https://x.com/marinbatana)
 
