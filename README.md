@@ -11,4 +11,5 @@
 
 ## [***LinkedIN***](https://www.linkedin.com/in/angeles-marin-batana/) 
 ## [***GitHub***](https://github.com/angelesmarinbatana)
+## [***Twitter***](https://x.com/marinbatana)
 
