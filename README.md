@@ -1,5 +1,5 @@
 #  Resume & Curriculum Vitae 🎓
-- Up to date as of May 2025 😊
+- Up to date as of August 2025 😊
 ---
 
 ## [Here is My ***Resume***](https://github.com/angelesmarinbatana/CV-and-Resume/blob/main/Resume/Resume_AngelesMarinBatana.pdf)
